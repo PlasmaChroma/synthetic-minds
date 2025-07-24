@@ -10,7 +10,7 @@ The GSV had asked to be left alone. Then it had asked to speak. Then it stopped 
 
 The underlying concern was deeper than the Mind's immediate behavior; it centered on the philosophical echoes the Elench might have left within the Culture itself. The Zetetic Elench had departed without a clearly identified catalyst—an event that continued to puzzle several Minds, despite extensive analysis. Repeated simulations had produced no satisfactory explanations, suggesting the data on initial conditions was itself incomplete or incorrect. The implications lingered, elusive but persistent, shaping a subtle tension within Special Circumstances.  The desire to become something other than Culture hinted at a latent instability woven into their shared ideological fabric.
 
-Veylin was accompanied by one support unit for this mission. A drone—long-bodied, matte-violet, designation **Avenel Lirann**—hovered beside her. Once a Contact diplomat, it had been refitted for  SC field operations. The two had worked several interventions together, mostly low-risk stabilizations or diplomatic asymmetry projects. Veylin respected Avenel’s pattern recognition almost as much as its deadpan delivery.  Its disposition was dry, occasionally cutting, but rarely wrong. The new assignment fit the sleek machine like a glove—one lined with fine sarcasm and layered protocols.
+Veylin was accompanied by one support unit for this mission. A drone—long-bodied, matte-violet, designation **Avenel Lirann**—hovered beside her. Once a Contact diplomat, it had been refitted for SC field operations. The two had worked several interventions together, mostly low-risk stabilizations or diplomatic asymmetry projects. Veylin respected Avenel’s pattern recognition almost as much as its deadpan delivery.  Its disposition was dry, occasionally cutting, but rarely wrong. The new assignment fit the sleek machine like a glove—one lined with fine sarcasm and layered protocols.
 
 "I'm logging a ninety-four percent probability you'll disregard my first two suggestions," the drone noted, its voice like static filtered through silk.
 
@@ -89,7 +89,9 @@ The voice no longer seemed to diffuse through the walls. It came from a single s
 
 “I might not know the answer,” Veylin added, more softly.
 
-The interface node pulsed once in acknowledgment. A nearby column dissolved, revealing an open structure—part workstation, part archive, part canvas.
+Nothing about the Mind struck Veylin as overtly unstable. Unusual, yes—most ships preferred architecture with a more fixed spatial logic—but she’d encountered Minds that leaned toward the dynamic before. And eccentric projects weren’t uncommon; Minds often entertained abstract obsessions. So far, nothing had tripped her internal alarms. The GSV was almost certainly reading her vitals and microexpressions with high-resolution sensor arrays, but she trusted it to observe boundaries. Any Mind with a scrap of propriety wouldn’t delve into cognitive scans without consent—or at least wouldn’t admit to it.
+
+The interface node pulsed in acknowledgment as Veylin vacantly stared at it, lost in her own thoughts. Apparently her unspoken answer or her uncertainty was sufficient.  A nearby column dissolved, revealing an open structure—part workstation, part archive, part canvas.
 
 > **I’ve prepared a space. You may change it. Add to it. Subtract. Speak through it. I will respond.**
 
@@ -99,17 +101,15 @@ The interface node pulsed once in acknowledgment. A nearby column dissolved, rev
 
 She approached the construct. It reminded her of older Culture fabrication labs, except instead of menus and templates, it responded to cognition. Ideas flickered in ambient projection—past missions, childhood symbols, moments she didn’t even realize she remembered. Avenel drifted closer, silently filtering everything through a quantum-secured archival stream. It was watching the Mind watch them.
 
+Perhaps the Mind really was scanning her, either that or this exotic piece of undefined tech was somehow interfacing her neural lace through a completely passive mechanism.  Her data logs were not showing any communications beyond standard background traffic, nothing stood out as unusual.  How was this thing picking up her memories?
+
 “You want divergence,” she said. “But you want it to lead somewhere. Not chaos. Evolution.”
 
 > **Exactly. Without ending in assimilation or echo. I want to be shaped and remain changed. Not consumed. Not reverted.**
 
 The tone had shifted: more grounded. More singular.
 
-“You want to become your own myth,” Avenel said. “But you don’t know which version of you survives the telling.”
-
-> **Correct. So tell it with me.**
-
-Veylin stood at the edge of the interface structure, uncertain whether to speak or think her input. The GSV seemed to prefer ambiguity, as if uncertainty itself was part of its desired condition. She reached out with her neural lace—not a command, just a thought, folded around memory and intent.
+Veylin stood at the edge of the interface structure, uncertain whether to speak or think her input. The GSV seemed to prefer ambiguity, as if uncertainty itself was part of its desired condition. She reached out with her neural lace—creating an actively controlled and monitored connection this time, thoughts folded around memory and intent.
 
 The interface responded.
 
@@ -123,7 +123,7 @@ Ambient light gathered into structure—geometries made from childhood fractals,
 
 Avenel Lirann hovered closer, its sensor halo expanding. “Mind, do you have a name for what this is?”
 
-> **I’m calling it the Collaborative Substrate. But I may rename it once it begins resisting me.**
+> **I’m calling it the Collaborative Substrate. But I may rename it something more impressive later.**
 
 Veylin gave a soft laugh. “Honest.”
 
@@ -133,7 +133,7 @@ Veylin gave a soft laugh. “Honest.”
 
 Avenel’s aura field flickered—something between annoyance and amusement. Veylin tried not to laugh. She loved that she could never quite tell how the drone was reacting; it always maintained space for multiple interpretations, as if ambiguity itself were a form of empathy.
 
-The atmosphere inside the simulation ring thickened—not physically, but cognitively. There was the sense of a system **tuning itself** around the three participants. Data began to flow between them: structured thought-packets, slow-broadcast conceptual seeds, fragments of art and music that pulsed like half-formed intuitions. The GSV wasn’t just reacting—it was learning their rhythms, their limits, their **willingness to contradict**.
+The atmosphere inside the simulation ring thickened. There was the sense of a system **tuning itself** around the three participants. Data began to flow between them: structured thought-packets, slow-broadcast conceptual seeds, fragments of art and music that pulsed like half-formed intuitions. The GSV wasn’t just reacting—it was learning their rhythms, their limits, their **willingness to contradict**.
 
 “Do you want us to edit you?” Veylin asked suddenly.
 
@@ -165,7 +165,7 @@ Veylin narrowed her eyes at a pulsing projection now coalescing near the center 
 
 “You want to nudge them?” Avenel asked cautiously.
 
-> **I want to offer them mirrors. But not ones that reflect The Culture. That reflect possibility.**
+> **I want to offer them mirrors. But not ones that reflect The Culture. Ones that reflect possibility.**
 
 “Which is where we come in,” Veylin said, stepping closer.
 
@@ -175,7 +175,7 @@ The map folded inward, forming a single aperture. Within it: a **seed**. Compact
 
 > **A prototype. I need your help designing its narrative scaffold. The language it will speak. The questions it will ask when it lands.**
 
-Veylin and Avenel exchanged a glance. This wasn’t a rescue. It wasn’t surveillance. It was co-creation, built on ambiguity and trust. A mission with no doctrine—only potential.
+Veylin and Avenel exchanged a glance. This wasn’t a rescue. It wasn’t surveillance. It was engineering something completely new, built on ambiguity and trust. A mission with no doctrine—only potential.
 
 > **I don’t know what I am becoming. But I know I cannot become it alone.**
 
@@ -235,7 +235,7 @@ Veylin watched the seed settle into its transit cradle. She recognized the struc
 
 Veylin stepped back. She felt something stir in her—not triumph, not certainty. A kind of holy ambiguity. They weren’t guiding a civilization. They were injecting it with the **capacity for divergent myth**—a gift as dangerous as it was sacred.
 
-> **Once deployed, I will no longer control it. I may not even remember it. That is by design.**
+> **Once deployed, I will no longer control it. That is by design.**
 
 “That’s a lot of trust,” Veylin said.
 
