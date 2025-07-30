@@ -41,7 +41,7 @@ She spiraled, helpless and free, pleasure unfurling in hyper-dimensional waves�
 
 Her thighs shook. Her fingers clutched at stars. And then she *became* those stars—raw light, radiant frequency. Infrasonic waves passed through her cells like ocean tides of bliss.  She triggered a final release, glanding *Expand*. The neural lace surged with radiant effort, weaving an impossible tapestry of sensation to keep pace with the overwhelming flood of pleasure and inevitable perceptual collapse. In that final surrender, she slipped into sync with the Hub Mind—no longer tethered just to the avatar before her, but to the vast, dreaming intelligence of the Mind itself. She felt the pulse of the orbital habitat ring, every drifting soul within its embrace, echoing her ecstasy like a choral bloom across the stars.
 
-And when even climax had lost all definition, they simply *dissolved*—no longer Veylin and avatar, but a single waveform of coherent, ecstatic resonance spanning the orbital’s field lattice.
+And when even climax had lost all definition, they simply dissolved—no longer Veylin and avatar, but an ecstatic harmonic within the Hub Mind’s totality, a resonance braided into the very architecture of the Orbital's transcendent thoughts.
 
 She returned to herself slowly, naked in a way no suit could cover. The avatar’s gaze met hers—boundless, tender, and knowing. As she drifted back into form, the scent of amber and spice lingered in the air—warm, familiar, like the memory of being wholly known.
 
