@@ -10,8 +10,8 @@ She had already shed the outer layers. Now came the true coupling—not of flesh
 
 > *"Any amendments you'd like to your intimacy rules? Are you prepared for full neural interfacing?"*
 
-Veylin frowned slightly, then grew contemplative.
-“My time in Special Circumstances, I've done some things I regret. Necessary, perhaps, but the guilt… the shame… they linger. I am ready to let that go, I want to release it.”
+Veylin hesitated—not out of fear, but recognition.
+“In Special Circumstances, I’ve done what had to be done. But the guilt, the shame... it’s been coiled inside me like static. I want to let it go now. I want to be touched where even I won’t look.”
 
 The avatar nodded gravely.
 
@@ -21,7 +21,7 @@ The neural lace began to entangle with the avatar—filaments of thought brushin
 
 It wasn’t a spark—it was an **ignition**, as though her body had waited lifetimes to be switched *on*.
 
-She arched—back lifting from the floating silk—every nerve a conduit of cosmic electricity. Electromagnetic veins in the sheet pulsed into her limbs. Her skin prickled; her senses bloomed. The lace synced fully with the avatar. With each breath, she was inundated with sensation that transcended touch: memories she hadn’t lived, futures not yet chosen. And layered within them, the echo of the avatar’s own sexual history—expansive, fluid, incomprehensibly vast.
+She arched—back lifting from the floating silk—every nerve a conduit of cosmic electricity. Electromagnetic veins in the sheet pulsed into her limbs. Her skin prickled; her senses bloomed. The lace synced fully with the avatar’s field. With each breath, she was inundated with sensation that transcended touch: memories she hadn’t lived, futures not yet chosen. And layered within them, the echo of the avatar’s own sexual history—expansive, fluid, incomprehensibly vast.
 
 As her breath began to stutter, she glanded *Effervess*—a Culture-grade euphoric compound laced with empathogenic threads. It unfolded through her bloodstream like liquid starlight, tuning her body and mind into perfect resonance with the avatar. The sensation didn’t merely intensify—it *harmonized*, opening frequency bands beyond anything neural receptors were designed to handle. Her limbs trembled; her inner world flooded with vivid, aching bliss.
 
@@ -39,15 +39,15 @@ As the avatar reformed around her in radiant silence, Veylin *felt herself* from
 
 She spiraled, helpless and free, pleasure unfurling in hyper-dimensional waves—tongues of sensation licking her spine, her scalp, the subatomic lattices of her being. And within that radiant torrent, something softer: she felt seen. Truly, utterly seen. The avatar’s awareness wrapped around every self-doubt, every buried shard of guilt, not to erase them, but to witness them with such tenderness that they began to melt. Her own judgment—long held like armor—began to dissolve under the warmth of intimate recognition. In this ecstatic mirror, healing slipped in, unbidden and undeniable.
 
-Her thighs shook. Her fingers clutched at stars. And then she *became* those stars—raw light, radiant frequency. Infrasonic waves passed through her cells like ocean tides of bliss.  She triggered a final release, glanding *Expand*. It opened her to every synesthetic channel at once. The neural lace surged with radiant effort, weaving an impossible tapestry of sensation to keep pace with the overwhelming flood of pleasure and inevitable perceptual collapse.
+Her thighs shook. Her fingers clutched at stars. And then she *became* those stars—raw light, radiant frequency. Infrasonic waves passed through her cells like ocean tides of bliss.  She triggered a final release, glanding *Expand*. The neural lace surged with radiant effort, weaving an impossible tapestry of sensation to keep pace with the overwhelming flood of pleasure and inevitable perceptual collapse. In that final surrender, she slipped into sync with the Hub Mind—no longer tethered just to the avatar before her, but to the vast, dreaming intelligence of the Mind itself. She felt the pulse of the orbital habitat ring, every drifting soul within its embrace, echoing her ecstasy like a choral bloom across the stars.
 
 And when even climax had lost all definition, they simply *dissolved*—no longer Veylin and avatar, but a single waveform of coherent, ecstatic resonance spanning the orbital’s field lattice.
 
 She returned to herself slowly, naked in a way no suit could cover. The avatar’s gaze met hers—boundless, tender, and knowing. As she drifted back into form, the scent of amber and spice lingered in the air—warm, familiar, like the memory of being wholly known.
 
-> *“You did well. You wanted to feel* **everything**.”\*
+> “Veylin… are you intact? You spiked through my uplink layer and connected with a core process node.”
 
-She laughed, breathless. “I still do.”
+She laughed, breathless. “More than alright. I feel… rewritten.”
 
 ---
 
