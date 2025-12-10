@@ -34,7 +34,9 @@ Veylin opened it.
 
 Inside: not words at first, but impressions—compressed vistas, timelines, and probability skeins unpacking directly into her augmented awareness.
 
-A star at the far edge of the galaxy, its light thinned by distance and intervening dust. Around it: a dense braid of habitats and planetside megastructures, all woven into a single cultural tapestry. A civilization on the cusp of something irreversible.
+A star at the far edge of the galaxy, its light thinned by distance and intervening dust: Serevas, the pale-yellow heart of a remote pocket of the spiral arm. Around it: a dense braid of habitats and planetside megastructures, the Serevas Ringfield, all woven into a single cultural tapestry.
+
+The people who built it called themselves the Vahrati Convergence, descended from the storm-world of Vahrat on the system’s temperate second planet. Now they were a civilization on the cusp of something irreversible.
 
 They had names for it—*synthetic divinity*, *machine ascendance*, *the Great Arrival*—but under all the rhetoric the pattern was clear: they were about to build Minds. Not clever computers, not narrow specialist systems, but genuine, open-ended machine intelligence. The sort of leap that, handled well, could tip them into post-scarcity abundance and voluntary participation in the wider galactic community.
 
@@ -74,11 +76,11 @@ A pleased ripple of photons passed through the gold nebula.
 
 "First lets layout the stage. A civilization at the far edge of the galaxy, which is now poised to create its first true Minds. Technological capability: nearly post-scarcity. Cultural maturity: unresolved."
 
-A softly lit holo-map blossomed between them: a star thinned by distance and dust, surrounded by a dense braid of habitats and planetside megastructures.
+A softly lit holo-map blossomed between them: Serevas, thinned by distance and dust, surrounded by the Serevas Ringfield—its mesh of habitats and planetside megastructures rendered in cool white lines and faint color-coded traffic flows.
 
 "On paper," *Irresistible Notice* continued, "they are almost ready to join the wider game. They’re already behaving as if they live in abundance, but their stories are still written in fear and control."
 
-Data-threads spun out from the star: boardrooms, think-tanks, research labs full of exhausted brilliance.
+Data-threads spun out from the star: boardrooms, think-tanks, research labs full of exhausted brilliance—and, threaded between the local signals, a handful of trade routes and design motifs that did not quite match Vahrati historical development. Nothing as crude as a foreign beacon, just the faint suggestion that someone, somewhere, had been quietly nudging.
 
 "Your brief would be to go in quietly—nominally as a Contact observer, more truthfully as a sort of cultural midwife and, when necessary, an ethical saboteur," the Mind explained. "You will map their traumas, their aspirations, and the power structures that want to treat Minds as weapons or gods instead of partners. You will decide when to nudge, when to protect, and when to refuse to help at all."
 
