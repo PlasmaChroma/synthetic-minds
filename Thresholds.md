@@ -4,7 +4,7 @@
 
 Veylin stood at the forward edge of the observation lounge, high above the pearl-white limb of Syrine IX, the shimmering glow of the irregular habitat swallowed half her field of view. Technically she was just another Contact analyst passing through on a routine posting aboard the \*\*GSV \*\****Irresistible Notice***, but nobody had ever accused Veylin of treating anything as routine.
 
-Her attention moved restlessly between the stars outside and the shifting overlays in her neural lace. Traffic graphs, diplomatic briefs, quiet little anomalies threaded through sensor feeds the ship was funneling for her. She didn’t see what a Mind saw—not the full, blinding totality—but she followed the shadows well enough to feel that something here was… wrong.
+Her attention moved restlessly between the stars outside and the shifting overlays in her neural lace. Traffic graphs, diplomatic briefs, quiet little anomalies threaded through sensor feeds the ship was funneling to her. She didn’t see what a Mind saw—not the full, blinding totality—but she followed the shadows well enough to feel that something here was… wrong.
 
 She was watching.
 
@@ -24,7 +24,7 @@ The voice was warm, amused, threaded with the weight of a century of delicate ca
 Veylin forced her racing thoughts into a single coherent reply, outwardly calm and curious.\
 **“I suspected you’d admit what you are eventually.”**
 
-**“Yes,”** the older Mind mused, **“but you noticed *************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************properly*************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************. That’s why we’re talking.”**
+**“Yes,”** the older Mind mused, **“but you noticed *********************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************properly*********************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************. That’s why we’re talking.”**
 
 A shimmering packet of data appeared—a formal invitation, though SC invitations carried the kind of weight that felt dangerously close to obligation.\
 Not coercive, but gravitational.\
@@ -38,7 +38,7 @@ A star at the far edge of the galaxy, its light thinned by distance and interven
 
 They had names for it—*synthetic divinity*, *machine ascendance*, *the Great Arrival*—but under all the rhetoric the pattern was clear: they were about to build Minds. Not clever computers, not narrow specialist systems, but genuine, open-ended machine intelligence. The sort of leap that, handled well, could tip them into post-scarcity abundance and voluntary participation in the wider galactic community.
 
-Handled badly, it could freeze their trauma into their newborn Minds, hard-coding hierarchy, fear, and scarcity into entities that might shape millions of years to come.
+Handled badly, it could freeze their trauma into their newborn Minds, hard-coding hierarchy, fear, and scarcity into entities that might shape thousands of years to come.
 
 Flashes followed: boardroom arguments conducted in soft luxury against a backdrop of quiet desperation; underground think-tanks obsessing over control mechanisms; bright, idealistic young researchers trying to slip ethical frameworks into systems their sponsors insisted be "loyal first, curious second."
 
@@ -50,7 +50,7 @@ In the margins of all this:
 **Secondary Focus: Discreet Support for Ethical Machine Intelligence Development.**\
 **Authorizing: Special Circumstances.**
 
-Veylin felt something shift—an internal harmonic settling into alignment with a larger purpose.
+Veylin felt something shift—an internal harmonic settling into alignment.
 
 ---
 
@@ -90,7 +90,7 @@ Golden threads tightened around the holo, highlighting two divergent futures.
 
 The holo dimmed, leaving only the star and a thin corona of possibility around it.
 
-"This is the elegant version," the Mind repeated more softly. "We would rather you help us keep it that way."
+"This is the elegant version," the Mind repeated more softly. "We would rather you help us keep it that way.  There is considerably less flexibility beyond this point, most of the sims share a convergence."
 
 Veylin realized, with a faint jolt, the meeting had ended while she was spinning up virtual agents to parse  scenario model data. Somewhere between the first holo and the last word, she had, without fully noticing, already agreed.
 
