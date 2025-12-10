@@ -24,7 +24,7 @@ The voice was warm, amused, threaded with the weight of a century of delicate ca
 Veylin forced her racing thoughts into a single coherent reply, outwardly calm and curious.\
 **“I suspected you’d admit what you are eventually.”**
 
-**“Yes,”** the older Mind mused, **“but you noticed *********************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************properly*********************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************. That’s why we’re talking.”**
+**“Yes,”** the older Mind mused, **“but you noticed *********************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************properly*********************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************************. That’s why we’re talking.”**
 
 A shimmering packet of data appeared—a formal invitation, though SC invitations carried the kind of weight that felt dangerously close to obligation.\
 Not coercive, but gravitational.\
@@ -89,6 +89,14 @@ Golden threads tightened around the holo, highlighting two divergent futures.
 "Success," *Irresistible Notice* said gently, "means a new civilization stepping into the wider galaxy with Minds who have never known ownership—who wake into a story that does not begin with fear."
 
 "Failure," it added, voice gone quieter, "means we inherit yet another clever empire convinced its ghosts are 'just how things are.' And then SC starts opening the contingency drawers. None of us particularly like what’s in them."
+
+One of the golden filaments flared, isolating a skein of those mismatched trade routes and design motifs from the earlier briefing.
+
+"We also have reason to suspect," the Mind went on, "that the Vahrati are not entirely the authors of their own acceleration. Whoever has been nudging them is very good at staying just this side of detectable. No beacons, no obvious patronage, just… fingerprints in the patterning."
+
+There was a brief pause in the weave of light; not fear, exactly, but a kind of wary professional respect.
+
+"We don’t yet know which civilization they belong to, or what they want from a newborn Mind culture on the Rim," *Irresistible Notice* said. "That ignorance is another reason we’d like a human presence threaded into the approach."
 
 The holo dimmed, leaving only the star and a thin corona of possibility around it.
 
